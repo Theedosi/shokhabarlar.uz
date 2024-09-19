@@ -1,1 +1,1 @@
-# shokhabarlar.uz
+# location
